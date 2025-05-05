@@ -3,3 +3,5 @@
  💻✨ Quem quiser usar o código para o próprio portfólio, fique à vontade – é totalmente open source!
  
   🔓🖥️ Espero que gostem! 😃🚀
+
+amei o desing viu !
